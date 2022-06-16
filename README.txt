@@ -1,0 +1,1 @@
+so yah, ini cuma buat healing dari masalah masalah (16/6/2022)
